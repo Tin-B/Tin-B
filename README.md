@@ -5,7 +5,7 @@
 
 - 🤝 Open to collaboration on any Deep Learning or AI-related projects
 
-- 📫 You can reach me right here on this page or via LinkedIn (add your link!)
+- 📫 You can reach me right here on this page or via LinkedIn ([add your link!](https://www.linkedin.com/in/yolanda-chiike-0a6183208?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))
 
 - 😄 Pronouns: TIN
 
